@@ -10,4 +10,3 @@ Thiago Fernandes Marini
 
 
 
-![](https://tenor.com/pt-BR/view/chris-bumstead-cbum-daddy-cbum-gif-25702331)
